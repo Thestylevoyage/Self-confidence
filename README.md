@@ -37,6 +37,6 @@ Whenever you achieve small things in your life make them count. Celebrate them i
    
 Stop being people pleaser and don’t try hard to fit in an ideal image of a person defined by the society. It’s okay to say no, if you don’t want to do anything you don’t like. You can not always please everyone at one go. It’s because some people will always be unhappy no matter how much you do for them.
 
-10. Find things of your interest:
+9. Find things of your interest:
     
 Always remember that doing things which we like gives us happiness and sense of joy. Always look up for the things which you find interesting. Because doing the activity which you’re interested in keeps you indulged, focused and energized.If you don’t know what about your interest then observe yourself. See makes you feel more excited and joyful, what things you enjoy the most while doing. Doing the things of your interest will help you to improve confidence-level .
